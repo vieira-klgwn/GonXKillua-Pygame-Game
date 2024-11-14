@@ -24,3 +24,6 @@ The project is open source, you can contribute.
 5.  Enjoy the game "Dearest Friend"
 
 If you like the game and wanna form the similar friendship, DM me. I'm @vieirantwali on IG
+
+![image](https://github.com/user-attachments/assets/630b42a8-9f08-4382-8ef4-72a26a6e536f)
+
